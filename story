@@ -1,0 +1,1 @@
+    Harry Potter was born with a stange mark. He got it from Voldemort as he was the one who gave him the curse. 
