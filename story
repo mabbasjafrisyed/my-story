@@ -1,2 +1,2 @@
     Harry Potter was born with a stange mark. He got it from Voldemort as he was the one who gave him the curse.
-    Harry Potter was the first ever person from year 1 in hogwarts to play in the quidithc tea.
+    Harry Potter was the first ever person from year 1 in hogwarts to play in the quidithc tea.He was assigned gryffindor as his hogwarts house.
